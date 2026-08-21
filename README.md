@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @heyoanon
-- 👀 I’m interested in analyzing and solving problems, games and music :)
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: She/They
-- ⚡ Fun fact: I'm just go-along kind of person
+Hello, this is @heyoanon. I'm mostly interested in music, creatives, building stuff, and games. For more inquiries , you can contact me via danyaellap@gmail.com. 
+
+Pronouns: She/They
+:)
 
 <!---
 heyoanon/heyoanon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
