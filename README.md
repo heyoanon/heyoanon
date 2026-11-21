@@ -1,4 +1,4 @@
-Hello, this is @heyoanon. I'm mostly interested in music, creatives, building stuff, and games. For more inquiries , you can contact me via danyaellap@gmail.com. 
+Hello, this is heyoanon. I'm mostly interested in music, creatives, building stuff, and games. For more inquiries , you can contact me via danyaellap@gmail.com. 
 
 Pronouns: She/They
 :)
